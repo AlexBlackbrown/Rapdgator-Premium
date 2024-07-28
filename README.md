@@ -45,4 +45,4 @@ Rapidgator Marketing and Advertising Vertical is its biggest customer base.
 
 GET good and working Rapidgator premium link generator and ***premium files*** you need with maximum speed and with no daily limit 
 
-[<img src="https://github.com/AlexBlackbrown/Rapdgator-Premium/blob/main/gs.png"/>](https://bit.ly/3LK7vby)
+[<img src="https://github.com/AlexBlackbrown/Rapdgator-Premium/blob/main/gs.png"/>](https://bit.ly/4c1nHQG)
