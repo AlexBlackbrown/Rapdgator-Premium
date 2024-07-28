@@ -10,7 +10,7 @@ Rapidgator's interface is easy to use for those who unusually square measurement
 
 There is a ***premium rapidgator*** file 
 
-[<img src="https://github.com/AlexBlackbrown/Rapdgator-Premium/blob/main/gs.png"/>](https://bit.ly/3LK7vby)
+[<img src="https://github.com/AlexBlackbrown/Rapdgator-Premium/blob/main/gs.png"/>](https://bit.ly/4c1nHQG)
 
 ***The Rapidgator premium account*** gives users 2 options to share their files. These 2 options include the online browser, as well as the FTP server. when sharing small files, you will use the online browser. the online browser shows the number of files transferred or uploaded, as well as the time remaining to complete the task. However, if you want to transfer a large file. You will use the FTP server. The FTP server allows your file to load faster. when the file is uploaded, you receive a notification with a link that the uploaded file has been shared with friends and family.
 
